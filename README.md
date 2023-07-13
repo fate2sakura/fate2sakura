@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Is ME Shinobu
+
+![Visited By](https://count.getloli.com/get/@shinobu?theme=gelbooru)
